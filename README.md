@@ -1,5 +1,5 @@
 # Get-Lists
-**[Get 1 Year Free Premium Membership](https://vnuf68768.github.io/)**
+**[Get 1 Year Free Premium Membership](https://t.ly/Lv1tW)**
 # Premium
 
 - Unlimited ad-free movies, TV shows, and mobile games
