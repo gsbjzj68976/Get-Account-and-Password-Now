@@ -1,5 +1,5 @@
 # Get-Lists
-**[Get 1 Year Free Premium Membership](https://t.ly/Lv1tW)**
+**[Get 1 Year Free Premium Membership](https://t.ly/lcfR9)**
 # Premium
 
 - Unlimited ad-free movies, TV shows, and mobile games
